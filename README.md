@@ -1,1 +1,0 @@
-# ti-colinthomas.github.io
